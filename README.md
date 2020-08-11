@@ -11,8 +11,9 @@ To use this application,
 
 If you have problem, feel free to ask me ^^ 
 
-You can watch the tutorial for this app.
+You can check:
+https://www.youtube.com/channel/UCZfZm4thtZt0drL1j7PKb4w
 
-https://www.youtube.com/channel/UCFyXA9x8lpL3EYWeYhj4C4Q?view_as=subscriber
+
 
 
